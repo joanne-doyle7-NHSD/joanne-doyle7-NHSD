@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on whatever is required.
 - 📫 How to reach me - email/Slack
 - 😄 Pronouns: she/they
+- Outside of tech - I have two kids (boys aged 8 and 6), I'm originally from Dublin, live in Manchester and love snowsports, running and swimming. 
 - ⚡ Fun fact: I lived next to the Guinness brewery for 2 years. I have not been able to drink malty beer since. 
 
 <!---
